@@ -623,7 +623,7 @@ If you find this project interesting:
 
 Built by **Shivang Sharma**
 
-AI experiments, automation, and agentic systems → [@aiwithshivang](https://github.com/aiwithshivang)
+AI experiments, automation, and agentic systems → [@aiwithshivang](https://instagram.com/aiwithshivang)
 
 ---
 
